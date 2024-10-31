@@ -1,1 +1,0 @@
-# Uswatun-Nisa-REGRESI-LINEAR
